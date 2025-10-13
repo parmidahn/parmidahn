@@ -29,4 +29,4 @@
 ---
 
 📫 **How to reach me:**  
-[Telegram](https://t.me/pishimida) | [Email](mailto:parmida.ahangari@gmail.com) | [LinkedIn](https://linkedin.com/parmida-ahangari)  
+[LinkedIn](www.linkedin.com/in/parmida-ahangari-a08426248)  
