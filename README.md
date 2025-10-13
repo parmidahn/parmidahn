@@ -29,4 +29,4 @@
 ---
 
 📫 **How to reach me:**  
-[LinkedIn](#www.linkedin.com/in/parmida-ahangari-a08426248)  
+[LinkedIn](www.linkedin.com/in/parmida-ahangari-a08426248)  
